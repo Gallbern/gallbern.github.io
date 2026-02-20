@@ -1,1 +1,0 @@
-# gallbern.github.io
